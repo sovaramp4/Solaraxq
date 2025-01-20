@@ -40,11 +40,5 @@ Hiih!! You probably came from the silly pony gamee !! SO READD!! IM SILLYLYLY
 
 .ᐟ ⚝ Im really aggressive or attitude filled when it comes 2 randos,, please dont take offense.
 
-👾 ── ⟢ ・⸝⸝ ꜱʜᴏᴜᴛᴏᴜᴛꜱ
-
-.ᐟ ⚝ 2 my special sillys ily all platonically
-
-luna, dec, salem, liam, spookiee, nikko. and my amazing partner flaming hot doritos 🫶🏻 /j
-
 •☽────✧⋆⋅☆⋅⋆✧────☾•
 
